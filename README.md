@@ -1,0 +1,1 @@
+There are many reasons why it is important to know the weather. It helps people make important decisions about the day. The weather may influence many different things from clothes to wear during a cold day to whether it is safe to fly an airplane.
